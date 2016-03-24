@@ -1,0 +1,8 @@
+excerpt_separator: ""
+pygments: true
+markdown: kramdown
+url: http://vrcase.github.io
+title: VR Case
+tagline: Enjoy Virtual Reality Anywhere Anytime
+description: My awesome new site
+paginate: 10
