@@ -1,0 +1,6 @@
+---
+published: true
+title: Storm launch of 99 of the film \"artifact\"-storm mirror
+layout: post
+---
+![Alt Storm launch of 99 of the film \"artifact\"-storm mirror](https://c2.staticflickr.com/8/7034/26349094404_9119d553d0.jpg)Storm theme for this in Beijing, \"two hours away from the Earth\" new Conference, launched the company\'s first hardware product--virtual reality glasses \"eye mirror.\" Storm mirror mirror with storm development APP, mobile cinema IMAX effects can be achieved, watching ordinary movie theater viewing effect can be achieved. [VR box goggles](http://www.wearkits.com/)[![Alt VR box goggles](http://www.wearkits.com/wp-content/uploads/2016/03/vrbox_side.jpg)](http://www.wearkits.com/)According to the storm said, using the mirror of the storm during the movie, the Visual images about twice the standard IMAX screen, watching a 3D movie, its brightness is about 3 times the standard IMAX screen. [VR box 3D headset](https://medium.com/@fendicase/from-product-design-to-vr-google-product-designers-to-talk-about-his-unique-8cf422acdbda#.yqmzxkqz)Storm mirror costs 99 Yuan, from September 5 to accept reservation, are put on sale in late September, will launch a series of related services after the sale, the virtual reality from the video, the game is extended to more areas.
