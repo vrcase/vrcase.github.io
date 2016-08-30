@@ -1,0 +1,6 @@
+---
+published: true
+title: Poised! Galaxy S7 3C product certification
+layout: post
+---
+![Alt Poised! Galaxy S7 3C product certification](https://c1.staticflickr.com/9/8347/29332128245_ba2dbd34c5_b.jpg)After many ways of exposure and notoriety, Samsung has also identified in the United States published on February 21, and now Galaxy S7/S7 edge by China\'s 3C product certification. [Moschino online shop](http://unicase.devhub.com/blog/2668100-nasa-began-recruiting-astronauts-on-mars-conditions-have-been-turned-loose/)[![Alt case Moschino](http://www.nodcase.com/images/large/i6/moschino_i61860_lrg.jpg)](http://www.nodcase.com/moschino-cleaning-spray-iphone-6-case-p-5289.html)　　Apply for certification of manufacturers displayed as Huizhou\'s electronics Samsung, Galaxy S7 models SM-G9308, SM-G9300,Galaxy S7 edge SM-G9350, from 3C charging head of product certification specification for 9V/1.67 5V/2A, compared with Galaxy S6, it\'s charging specifications remain unchanged, showed issuing date of January 28, 2016. By 3C, it means Kingdom S7 was closer to the release date. [case Moschino](http://www.nodcase.com/moschino-cleaning-spray-iphone-6-case-p-5289.html) [https://www.youtube.com/watch?v=Izz8mFpISXU](https://www.youtube.com/watch?v=Izz8mFpISXU)
